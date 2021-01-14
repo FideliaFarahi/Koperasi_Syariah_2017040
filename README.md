@@ -1,0 +1,1 @@
+# Koperasi_Syariah_2017040
